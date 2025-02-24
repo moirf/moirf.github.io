@@ -30,8 +30,8 @@ This document provides the Ramadan 2025 schedule for the USA, including prayer t
 - Wakeup 7:15AM and drop kids to school.
 - Join office at 8:00 AM in the morning.
 - 12:30PM 🕧 - Pray time 15 minutes.
-- 4:00 PM Leave office.
-- 5:00 PM - Volunteering for food at Mosque.
-- **8:00 PM to 10:30PM - Praying a Mosque.**
+- 4:00 PM Leave office, help in home chores.
+- 5:30 PM - Volunteering for food prep at mosque.
+- **8:00 PM to 10:30PM - Praying at mosque.**
 - **11:00 PM to 12:00AM - Responding to any queries from IST team.**
 - Sleep 12:00AM to 4:30AM.
