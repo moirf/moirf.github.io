@@ -1,4 +1,4 @@
-# Ramadan 2025 Schedule - Bellevue - WA USA 🌙✨🕌
+# Ramadan 2026 Schedule - Bellevue - WA USA 🌙✨🕌
 
 ## Overview 🌟📜🌍
 This document provides the Ramadan 2025 schedule for the USA, including prayer times, suhoor, and iftar schedules. 🕋🕰️📅
